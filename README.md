@@ -1,13 +1,13 @@
-⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/28c53f90d7195cec7626f3d6ec65a5c0/3e5e9a9856de5948-f5/s2048x3072/cbef62bdfbf73ab4fae0825effeae58d1c7830c1.pnj)
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/6e13d17558bd600523878e2b2074ab9f/99f83350bb8428b5-32/s2048x3072/d17488488ac475f5ee347888cd30d4be920889f6.pnj)
 
-⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/a9ebe4aaad9c8b6fe8ac0ce43e9c719d/167f4e589df87021-6c/s2048x3072/56aa6a12ca923debfc6fb237925218432b076823.pnj)
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀ ⠀  ⠀   ⠀   ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/59a1685fefa418742e122e7151e1f8be/6c010a2225957f8c-a9/s400x600/aaee522904e2ba44f863371c924a11dc51aa319d.gifv)
 
 
-                                             ⿻   ೀ ⠀ 🍭    ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
-                                                🦄      she⠀⠀/⠀⠀her   ֪ ◝
+                                             ⿻   ೀ ⠀ 🐚    ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
+                                                🫧      she⠀⠀/⠀⠀her   ֪ ◝
                                        ꒷ ︶  read strawpage   ◟  16yrs old  𖹭  ͜    ‼
 
 
-⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/a9ebe4aaad9c8b6fe8ac0ce43e9c719d/167f4e589df87021-6c/s2048x3072/56aa6a12ca923debfc6fb237925218432b076823.pnj)
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀  ⠀ ⠀  ⠀   ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/59a1685fefa418742e122e7151e1f8be/6c010a2225957f8c-a9/s400x600/aaee522904e2ba44f863371c924a11dc51aa319d.gifv)
 
-⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/28c53f90d7195cec7626f3d6ec65a5c0/3e5e9a9856de5948-f5/s2048x3072/cbef62bdfbf73ab4fae0825effeae58d1c7830c1.pnj)
+⠀ ⠀ ⠀ ⠀  ⠀ ⠀  ⠀   ⠀ ⠀ ⠀![](https://64.media.tumblr.com/6e13d17558bd600523878e2b2074ab9f/99f83350bb8428b5-32/s2048x3072/d17488488ac475f5ee347888cd30d4be920889f6.pnj)
